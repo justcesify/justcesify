@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @justcesify
-- 📩 You can contact me under my contact email: contact@cesify.xyz
+- 📩 You can contact me under my contact email: contact@cesify.de
 
 ======================================
 
